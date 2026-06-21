@@ -1,2 +1,0 @@
-# PROJECT-1
-E-COMMERS
